@@ -4,7 +4,7 @@ Ingredients
 ▢4 tsp baking powder NOT baking soda / bi-carb (Note 1)
 ▢1/2 cup white sugar (caster / super fine is best but not essential)
 ▢Pinch of salt
-▢1 large egg (~50g / 2oz in shell)
+▢2 large egg (~50g / 2oz in shell)
 ▢1 3/4 cups cups milk (any type, any fat %)
 ▢1 tsp vanilla extract or essence
 ▢4 tsp butter , for cooking
